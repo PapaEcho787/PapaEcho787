@@ -1,6 +1,6 @@
 ## Hi there, I'm Bryant 👋
 
-Commercial pilot fixed wing land. Professional tutor. Science communicator. Professional rock 'n roller and recordmaker. Good snowboarder, bad surfer. Retired 10-year restaurant professional.
+Commercial pilot fixed wing land, commercial UAS rating. Professional tutor. Science communicator. Professional rock 'n roller and recordmaker. Good snowboarder, bad surfer. Retired 10-year restaurant professional.
 
 Aspiring atmospheric planetary scientist with a basis in physics, CFi-in-training.
 
